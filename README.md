@@ -1,5 +1,10 @@
 # Brannigan-Schlie Wedding 2022
 
+##July 23, 2022
+##3:35 PM
+##The Beverly Mansion
+###6681 State Route 229 Marengo, OH 43334
+
 #### Welcome to our wedding site! This will be the hub for announcements and information for our friends and family. 
 We know a lof of people are coming from faraway places, so hopefully this will make your trip planning a bit easier. The wedding is July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. We are putting together a pretty rockin' party, if we do say so ourselves. Be prepared for lots of dancing, a little karaoke, a tiny art project, and a few surprises!
 
@@ -7,7 +12,6 @@ We know a lof of people are coming from faraway places, so hopefully this will m
 
 ### Beverly Mansion 
 - [Website for the Beverly Mansion](https://www.thebeverlymansion.com/) 
-- 6681 State Route 229 Marengo, OH 43334
 
 ### Mt. Vernon
 - [Maps link to Mount Vernon](https://goo.gl/maps/aywnEZDnatqW1mQB9)
